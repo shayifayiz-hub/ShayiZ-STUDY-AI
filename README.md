@@ -1,1 +1,0 @@
-# ShayiZ-STUDY-AI
